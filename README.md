@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @togesie
+- 👀 I’m interested in ... FiveM Servers ;)
+- 🌱 I’m currently learning ... Lua and other coding
+- 💞️ I’m looking to collaborate on ... whatever. 
+- 📫 How to reach me ... discord FB_TogesieGaming#0001
